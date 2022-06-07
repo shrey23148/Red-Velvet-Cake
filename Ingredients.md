@@ -1,0 +1,1 @@
+The ingredients required for making butter chicken are butter,chicken,vegetables,cream,garam masala,garlic,tomatoe,onion,yoghurt,chilli pepper,lemon,chicken breast,coriander,ginger,cumin,salt and fenugreek leaves.

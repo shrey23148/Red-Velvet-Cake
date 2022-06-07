@@ -1,0 +1,1 @@
+Butter chicken, traditionally known as murgh makhani, an Indian dish which is a type of curry made from chicken with a spiced tomato and butter sauce. Its sauce is known for its rich texture. It is similar to chicken tikka masala, which uses a tomato paste.The curry was made "by chance" by mixing leftover tandoori chicken in a tomato gravy, rich in butter.
